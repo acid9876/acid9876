@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me ..simply by contacting my manager
 - 😄 Pronouns: ...He
-- ⚡ Fun fact: ...my frnd papu is a gay
+- ⚡ Fun fact: ...my frn
 
 <!---
 acid9876/acid9876 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
